@@ -15,9 +15,21 @@
 <p align="center">
    <img src="https://64.media.tumblr.com/eb02761f8e7a7f788db3a862c10a9a13/9b5440e66b68ceaf-dc/s1280x1920/f5cb344c04bfd99f0a5189e2f8e56476ca112e53.pnj">
 </p>
+<div align="center"> 
+  me, mualani!
+  <div align="center"> 
+  17 bodily, vietnamese ^_^
+<div align="center"> 
+  she/her or just ask (it based on members)
+<div align="center"> 
+  fine to c+h it's oka!
+
 <p align="center">
   <img src="https://64.media.tumblr.com/69d0f8174a8c4db4443d966fe7bc6940/13b15821a9a5bfce-7f/s2048x3072/68f8c8ce1f86378d0d1bf134518e5655cdbd36f8.pnj">
 </p>
+<div align="center"> 
+  socials!
+  
 <div align="center">  
   
 [Carrd](https://dazzlestaries.carrd.co/)
