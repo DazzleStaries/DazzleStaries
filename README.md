@@ -32,14 +32,14 @@
   
 <div align="center">  
   
-[Carrd](https://dazzlestaries.carrd.co/)
+[Carrd!](https://dazzlestaries.carrd.co/)
 
 <div align="center">  
   <img src="https://64.media.tumblr.com/653fcbda5ade861cd83d5ee6f3bb66ba/64a0c5e58129ffb4-1a/s400x600/b811f8f8fae5d8c7e1cc96be940ede32636dce40.pnj"width="70">
 
 <div align="center"> 
 
-[Rentry](https://rentry.co/lilianaaa)
+[Rentry!](https://rentry.co/lilianaaa)
 
 <p align="center">
   <img src="https://64.media.tumblr.com/fc1fe93e3d15297b8d58948f9bd40c47/13b70724cbc41e24-2c/s250x400/f14da27cdd9b5af6c76dc16591c602ba0c835c14.pnj" width="70">
@@ -47,7 +47,8 @@
 
 <div align="center"> 
   
-Atabook/Strawpage: in progress!
+[Strawpage!](https://dazzlestaries.straw.page)
+(guys draw on my sp plsplspls)
 
 <p align="center">
   <img src="https://64.media.tumblr.com/69d0f8174a8c4db4443d966fe7bc6940/13b15821a9a5bfce-7f/s2048x3072/68f8c8ce1f86378d0d1bf134518e5655cdbd36f8.pnj">
