@@ -46,7 +46,8 @@
 <div align="center"> 
   
 ### [Strawpage!](https://dazzlestaries.straw.page)<br/>
-(guys draw on my sp plsplspls)
+### [Atabook!](https://dazzlestaries.atabook.org/)<br/>
+(guys draw on my sp and sign ata plsplspls)
 
 <p align="center">
   <img src="https://64.media.tumblr.com/69d0f8174a8c4db4443d966fe7bc6940/13b15821a9a5bfce-7f/s2048x3072/68f8c8ce1f86378d0d1bf134518e5655cdbd36f8.pnj">
