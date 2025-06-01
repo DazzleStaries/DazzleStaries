@@ -27,7 +27,7 @@
   fine to c+h it's oka!
 <div align="center"><br/>
 
-  socials!<br/>
+ <ins>socials!</ins><br/>
 <div align="center">  
   
 ### [Carrd!](https://dazzlestaries.carrd.co/)<br/>
