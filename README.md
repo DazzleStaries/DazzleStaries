@@ -1,18 +1,18 @@
 ---
 
 <p align="center">
-  <img src="https://64.media.tumblr.com/8ad08ad461d155f6f6d32d05c7fc228b/1a7499e8ed08e8b1-be/s1280x1920/f0595835629f1495a8e37a50659e74e61b599849.pnj">
+  <img src="https://64.media.tumblr.com/8c0e01f4002f191134607a78d8942c3e/c19e323d070b2290-36/s2048x3072/4f01f315ba2c028339bb6c5a244c54df27e189a5.pnj">
 </p>
 
 ---
 
 <div align="center"> 
   
-### Welcome, to Victoria Housekeeping Co.
+### The Goldenweaver.
 ---
 
 <p align="center">
-   <img src="https://64.media.tumblr.com/d3b93cb08b46677ab9b594717107b469/dc5a0ea934837c29-85/s2048x3072/493f1c3533b7fb4e5d28081db892d414a91522dc.pnj" width="900">
+   <img src="https://64.media.tumblr.com/1bc20ae50edd7ac9098b2cba3f432306/a038a8e03e9aa60a-a9/s540x810/315ba1928a5963ddda2c0f57d641585d91fbf83a.pnj" width="900">
 </p>
 
 <p align="center">
@@ -20,9 +20,9 @@
 </p>
 
 <div align="center"> 
-  me, ellen joe.<br/>
+  me, aglaea.<br/>
   17 bodily, vietnamese.<br/>
-  she/her/he/shark mostly based.<br/>
+  she/her/thread.<br/>
   fine to c+h, i don't bite.
 <div align="center"><br/>
 
@@ -32,14 +32,14 @@
 ### [Carrd](https://dazzlestaries.carrd.co/)<br/>
 <br/>
 <div align="center">  
-  <img src="https://64.media.tumblr.com/65b3b3a18056658f2e8c733683a7a2a9/d3a112f0f9ca26e4-07/s500x750/767ebe3009ff115a90194321a69857496f67dd6b.pnj" width="70">
+  <img src="https://64.media.tumblr.com/31f4fbba2f0c4bf0bf7b41a58601b558/6d08fe58ff2c7311-23/s250x400/9707f58ebdf591b4bf645579dd901e342417f010.pnj" width="70">
 
 <div align="center"> 
 
 ### [Rentry](https://rentry.co/lilianaaa)<br/>
 <br/>
 <p align="center">
-  <img src="https://64.media.tumblr.com/65b3b3a18056658f2e8c733683a7a2a9/d3a112f0f9ca26e4-07/s500x750/767ebe3009ff115a90194321a69857496f67dd6b.pnj" width="70">
+  <img src="https://64.media.tumblr.com/a8330fd50ccf800ec52cf3ea28c73958/6d08fe58ff2c7311-e1/s250x400/8953a1410482b75ee05fd896e0cc739a89dddddd.pnj" width="70">
 </p>
 
 <div align="center"> 
@@ -52,11 +52,11 @@
   <img src="https://64.media.tumblr.com/594fc57a6e21a87f35d0c939e2fa32b9/1a7499e8ed08e8b1-6d/s1280x1920/7d326398b0a83794934c33e22eea2be66bac268b.pnj">
 </p>
 <p align="center">
-  <img src="https://64.media.tumblr.com/c0991162731fb1d1f598e15e0770eb36/dc5a0ea934837c29-94/s2048x3072/3855f26c451ad5dc1cdae9a3c1574d51a3de2106.pnj" width="500">
+  <img src="https://64.media.tumblr.com/57081feecbc05693aa528ff3705585a0/a038a8e03e9aa60a-31/s400x600/b9861a1c9ae1efccabfff2bd5c8e51b8fbd7e5ee.pnj" width="500">
 </p>
 
 ---
 <div align="center">  
   
-###### thank you for using victoria housekeeping services.
+###### thank you, performer. for the role you have played.
 ---
