@@ -11,9 +11,7 @@
 ### The Goldenweaver.
 ---
 
-<p align="center">
-   <img src="https://64.media.tumblr.com/1bc20ae50edd7ac9098b2cba3f432306/a038a8e03e9aa60a-a9/s540x810/315ba1928a5963ddda2c0f57d641585d91fbf83a.pnj" width="900">
-</p>
+<img src="https://github.com/DazzleStaries/gifs-spot/blob/main/tumblr_f56ed26b9a894aee69faac3946560d02_333c40b3_640.gif" width=900>
 
 <p align="center">
   <img src="https://64.media.tumblr.com/594fc57a6e21a87f35d0c939e2fa32b9/1a7499e8ed08e8b1-6d/s1280x1920/7d326398b0a83794934c33e22eea2be66bac268b.pnj">
@@ -52,7 +50,7 @@
   <img src="https://64.media.tumblr.com/594fc57a6e21a87f35d0c939e2fa32b9/1a7499e8ed08e8b1-6d/s1280x1920/7d326398b0a83794934c33e22eea2be66bac268b.pnj">
 </p>
 <p align="center">
-  <img src="https://64.media.tumblr.com/57081feecbc05693aa528ff3705585a0/a038a8e03e9aa60a-31/s400x600/b9861a1c9ae1efccabfff2bd5c8e51b8fbd7e5ee.pnj" width="500">
+  <img src="https://github.com/DazzleStaries/gifs-spot/blob/main/af214e68-57c2-432f-bae3-cf55de7a4e81.gif">
 </p>
 
 ---
