@@ -4,17 +4,17 @@
   <img src="https://64.media.tumblr.com/8c0e01f4002f191134607a78d8942c3e/c19e323d070b2290-36/s2048x3072/4f01f315ba2c028339bb6c5a244c54df27e189a5.pnj">
 </p>
 
----
 
 <div align="center"> 
   
 ### The Goldenweaver.
----
+
+<img src="https://64.media.tumblr.com/67208e071364315767871cd955c1d5c6/76f6621c96c1ea9f-8d/s2048x3072/c5847c1b4fbae852f47041fe1fe98757498a410d.pnj">
 
 <img src="https://github.com/DazzleStaries/gifs-spot/blob/main/tumblr_f56ed26b9a894aee69faac3946560d02_333c40b3_640.gif" width=900>
 
 <p align="center">
-  <img src="https://64.media.tumblr.com/594fc57a6e21a87f35d0c939e2fa32b9/1a7499e8ed08e8b1-6d/s1280x1920/7d326398b0a83794934c33e22eea2be66bac268b.pnj">
+  <img src="https://64.media.tumblr.com/e8f4793bd364fad2cbbb31fb2b6c45c3/8f27961491e74009-85/s1280x1920/b14da3f90776d4b1e24b1044a3d73b12614dbab5.pnj">
 </p>
 
 <div align="center"> 
@@ -47,14 +47,18 @@
 (draw and sign ata, pls.)
 
 <p align="center">
-  <img src="https://64.media.tumblr.com/594fc57a6e21a87f35d0c939e2fa32b9/1a7499e8ed08e8b1-6d/s1280x1920/7d326398b0a83794934c33e22eea2be66bac268b.pnj">
+  <img src="https://64.media.tumblr.com/e8f4793bd364fad2cbbb31fb2b6c45c3/8f27961491e74009-85/s1280x1920/b14da3f90776d4b1e24b1044a3d73b12614dbab5.pnj">
 </p>
 <p align="center">
   <img src="https://github.com/DazzleStaries/gifs-spot/blob/main/af214e68-57c2-432f-bae3-cf55de7a4e81.gif">
 </p>
 
----
+<p align="center">
+  <img src="https://64.media.tumblr.com/e8f4793bd364fad2cbbb31fb2b6c45c3/8f27961491e74009-85/s1280x1920/b14da3f90776d4b1e24b1044a3d73b12614dbab5.pnj">
+</p>
+
 <div align="center">  
   
-###### thank you, performer. for the role you have played.
+##### thank you, performer. for the role you have played.
+
 ---
