@@ -19,8 +19,8 @@
 
 <div align="center"> 
   me, aglaea.<br/>
-  17 bodily, vietnamese.<br/>
-  she/her/thread.<br/>
+  18 bodily, vietnamese.<br/>
+  she/her/thread, otherwise ask.<br/>
   fine to c+h, i don't bite.
 <div align="center"><br/>
 
