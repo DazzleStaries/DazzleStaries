@@ -21,13 +21,13 @@
   me, aglaea.<br/>
   18 bodily, vietnamese.<br/>
   she/her/thread, otherwise ask.<br/>
-  fine to c+h, i don't bite.
+  fine to int, i don't bite.
 <div align="center"><br/>
 
  <ins>socials.</ins><br/>
 <div align="center">  
   
-### [Carrd](https://dazzlestaries.carrd.co/)<br/>
+### [Carrd](https://thecatlitterbox.carrd.co/)<br/>
 <br/>
 <div align="center">  
   <img src="https://64.media.tumblr.com/31f4fbba2f0c4bf0bf7b41a58601b558/6d08fe58ff2c7311-23/s250x400/9707f58ebdf591b4bf645579dd901e342417f010.pnj" width="70">
@@ -42,8 +42,8 @@
 
 <div align="center"> 
   
-### [Strawpage](https://dazzlestaries.straw.page)<br/>
-### [Atabook](https://dazzlestaries.atabook.org/)<br/>
+### [Strawpage](https://thecatlitterbox.straw.page)<br/>
+### [Atabook](https://thecatlitterbox.atabook.org/)<br/>
 (draw and sign ata, pls.)
 
 <p align="center">
